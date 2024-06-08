@@ -7,7 +7,7 @@ Time open:
 Everyday from 10am to 6pm (Except wednesday)
 
 Website Link:
-(https://chocolate-cakes-kijjl6g.gamma.site/)
+(https://jesslyn's-cakes-kijjl6g.gamma.site/)
 
 Location:
 Street - Jalan Tinju 13/50, Seksyen 13, 40100 Shah Alam
@@ -19,13 +19,13 @@ Phone Number:
 
 Cake flavours:
 Chocolate (Available)
-Vanilla (Unavailable)
-Strawberry (Unavailable)
-Blueberry (Unavailable)
+Vanilla (Available)
+Strawberry (Available)
+Blueberry (Available)
 
 Icing flavours:
 Chocolate (Available)
-Vanilla (UnAvailable)
+Vanilla (Available)
 Mint (Available)
 Strawberry (Available)
 Blueberry (Available)
